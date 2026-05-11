@@ -1,4 +1,4 @@
-#  
+#  oil empire Script no-ban is the best oil empire Script, featuring auto-sell and auto-collect. Safe and powerful for all your needs.
 
 
 
